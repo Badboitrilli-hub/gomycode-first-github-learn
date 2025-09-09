@@ -1,2 +1,2 @@
-nickname is BadboiTrilli
-I'm an 
+I'm straight
+
